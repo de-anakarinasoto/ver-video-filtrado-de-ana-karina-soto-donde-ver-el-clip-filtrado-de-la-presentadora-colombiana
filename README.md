@@ -2,7 +2,15 @@
 
 En los últimos días un video filtrado de la presentadora Ana Karina Soto acaparó la atención de las redes sociales, principalmente en Twitter y Telegram donde múltiples internautas comenzaron a compartir pequeños clips del supuesto metraje explícito.
 
-La controversia sobre el metraje se ha centrado en el material filtrado de la periodista en el año de 2022, cuando personas desconocidas vulneraron las cámaras de seguridad de la casa de Ana y obtuvieron videos íntimos de la comunicadora junto a su esposo.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
 
 ¿De qué trata el video viral de Ana Karina Soto?
